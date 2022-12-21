@@ -24,5 +24,44 @@
   - I really like to `swim` at a pool every morning. At first time, I started to swim `for my health`. but Now I really care for swimming. I think `that's the best way` to keep my health.
 
 - Do you sometimes get up late in the morning? why?
-  - 
+  - I was a sleepy guy when I was young. I had to sleep almost 10 hours a day. But now I always wake up early even though I want to `sleep in`. 
+
+- Do you think watching shows at night is a good idea?
+  - of course not. I think people need to sleep at night. if not, `it might spoil next day`. 
   
+<br/><br/>
+
+# Lesson02
+
+> Part4. Make your sentence
+
+- `get to work` (v. 일하러 가다)
+  - (example) I usually `get to work` at least twenty minutes early.
+  - I have to `get to work` on Sunday not to miss the deadline. 
+  - I would like to take a rest instead of `getting to work` today.
+
+- `have difficulty ~ing` (~하는데 어려움이 있다)
+  - (example) I tend to `have a difficulty sitting` long hours at the desk.
+  - I definitly `have a difficulty free-talking` in English
+  - There are many people to `have a difficulty living` by themself.
+
+- `get on` 
+  - (example) I need to `get on` the train every morning at six.
+  - As I know, the price of `getting on` the boat is high in Euroupe
+  - I recommend you to `get on` the subway when you get to work.
+
+> Part 5. Express your opinion
+
+- How do you commute to work?
+  - I usually go to work `by my car`. Sometimes I also `get on the subway` to get to work.
+- Have you ever been late for work? why?
+  -  long time ago, when I was `a sleepy guy`, I am often late `for school` because I `can't hear any alarm sounds` when I'm sleeping.
+- What are pros and cons of public transportation in your country?
+  - I think `the subway system` in korea is the best of the world. It is `safe` and almost `not delayed`. however there is `a lot of traffic` in the bus way.
+
+  
+<br/><br/>
+
+# Lesson03
+
+> Part4. Make your sentence
